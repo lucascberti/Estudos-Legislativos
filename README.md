@@ -1,5 +1,5 @@
 # Estudos-Legislativos
-Anotações leituras e aula Introdução aos Estudos Legislativos - IESP - UERJ, Prof. Dr. Fabiano Santos.
+Anotações leituras e aula Introdução aos Estudos Legislativos - IESP/UERJ, Prof. Dr. Fabiano Santos.
 
 # Aula 10 - 15/10
 
