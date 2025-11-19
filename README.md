@@ -15,6 +15,8 @@ Regras prospectivas x regras retrospectivas
 
 O político precisa evitar o malpasso
 
+Segredo eficiente é a fusão entre os poderes Exec-Leg!
+
 ## Aula 12 - 15/11
 
 ### Anotações de leitura - The Presidente in the Legislative Arena
@@ -66,3 +68,12 @@ O fato de o sucesso presidencial ser amplamente determinado por variáveis fora 
 **O estudo observa uma troca entre prestação de contas (accountability) e representação de interesses diversos. Embora o público responsabilize o presidente pelo governo, a estrutura do sistema (separação de poderes e falta de disciplina partidária) torna extremamente difícil para o presidente cumprir promessas. Qualquer tentativa de fortalecer o poder presidencial provavelmente diminuiria a representação de muitos interesses minoritários numa sociedade pluralista.**
 
 **Em suma, o sucesso do presidente no Congresso é determinado principalmente pelo resultado da última eleição e pelas predisposições partidárias e ideológicas dos membros eleitos. O presidente importa, mas a forma e a intensidade do seu sucesso são definidas sobretudo pelo contexto político-institucional em que opera.**
+
+### Anotações de aula
+
+- Sistema de gov francês não é semi-presidencialista, segundo Huber, e sim parlamentarista;
+- A racionalização do parlamento está ligada à criação do voto de pacote e do voto de confiança!
+- Grau de permissividade do sistema eleitoral;
+- Voto de confiança como um instrumento de position-taking!
+
+  
