@@ -76,4 +76,10 @@ O fato de o sucesso presidencial ser amplamente determinado por variáveis fora 
 - Grau de permissividade do sistema eleitoral;
 - Voto de confiança como um instrumento de position-taking!
 
+## Aula 13 - 26/11
+
+### AUla com Fernando Meireles
+
+- How do interest groups seek access to committees? Alexander 
+
   
