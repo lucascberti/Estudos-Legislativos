@@ -80,6 +80,22 @@ O fato de o sucesso presidencial ser amplamente determinado por variáveis fora 
 
 ### AUla com Fernando Meireles
 
-- How do interest groups seek access to committees? Alexander 
+- How do interest groups seek access to committees? Alexander
+
+## Aula 14 - 03/12
+
+- Importância dos comitês;
+- Richard Hall - Participation in Congress;
+- Robeet Michels e o estudo da sociologia dos partidos;
+-   
+
+
+
+
+
+
+
+
+
 
   
