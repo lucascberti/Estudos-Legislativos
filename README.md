@@ -89,7 +89,17 @@ O fato de o sucesso presidencial ser amplamente determinado por variáveis fora 
 - Robeet Michels e o estudo da sociologia dos partidos;
 -   
 
+## Aula extra - 10/12
 
+- "Governos parlamentares ja teriam maioria";
+- Gary Cox the efficient secret muito importante;
+- Produção de politicas diferentes em gabinetes diferentes e outcomes diferentes - estudo clássico em sistemas parlamentares;
+- Pluralista e corporativo (modelo societal) - relação entre sindicatos, sist. financeiro e governo;
+- Theory of political coalitons - Willian Riker; coalizão mínima!!!!! MUITO IMPORTANTE;
+- Situação de minoria (nenhum partido é majoritário);
+- Teoria da minimum winning connected coalition;
+- Compromisso da coalizão;
+- 
 
 
 
